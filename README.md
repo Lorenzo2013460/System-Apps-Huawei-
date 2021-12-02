@@ -1,2 +1,2 @@
 # System-Apps-Huawei-
-Download Huawei system apps!
+I don't think on some phones work!
